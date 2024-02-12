@@ -12,4 +12,4 @@ https://t.me/sophiatg
 
 Прошла обучение на аналитика данных в karpov.courses.
 Сертификат: https://lab.karpov.courses/certificate/39fbefa1-c855-4793-be61-66dab22f92f0/en/
-[embed]https://lab.karpov.courses/certificate/39fbefa1-c855-4793-be61-66dab22f92f0.pdf[/embed]
+![sertificate_ru](https://github.com/sophiazalomanina/sophiazalomanina/assets/134504268/09455bdb-661f-4b75-b16c-0ddb29fd741b)
