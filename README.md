@@ -12,4 +12,4 @@
 Прошла обучение на аналитика данных в karpov.courses.  
 Сертификат: [https://lab.karpov.courses/certificate/39fbefa1-c855-4793-be61-66dab22f92f0/en/ ](https://lab.karpov.courses/certificate/39fbefa1-c855-4793-be61-66dab22f92f0/en/) 
 
-![1](https://github.com/sophiazalomanina/sophiazalomanina/assets/134504268/e7d0a3e2-2d55-42f5-8f44-3d63f220c154)
+![1](https://github.com/sophiazalomanina/sophiazalomanina/assets/134504268/65cb0b8b-84cd-4076-bd73-325ef8356ec8)
